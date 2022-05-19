@@ -1,2 +1,2 @@
 # Indie-Cross-v1
-Nose que poner
+Estoy aprendiendo📚
